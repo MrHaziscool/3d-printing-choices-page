@@ -15,7 +15,10 @@ Check my projects ↓
 
 5. $5 Nike/North Face Puffy Jacket Pen/pencil Holder: <img width="858" height="483" alt="image" src="https://github.com/user-attachments/assets/6a2aef62-975f-4903-93d0-1c23cea134fe" />
 
-6. $2 Little Cute Guy: <img width="879" height="451" alt="image" src="https://github.com/user-attachments/assets/ced938f6-5bf6-43e0-9c76-12860339df14" />
+6. $2 Little Cute Guy: Able in sea green, red or silver <img width="879" height="451" alt="image" src="https://github.com/user-attachments/assets/ced938f6-5bf6-43e0-9c76-12860339df14" />
+
+7. $3 Infinity Cube: Able in sea green, red or silver ![2024-04-24_36d8b42f2791](https://github.com/user-attachments/assets/16068196-8a92-4fa7-a57c-3d0f4d3218a3)
+
   
 
 
