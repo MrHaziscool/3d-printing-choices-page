@@ -8,14 +8,14 @@ Check my projects ↓
  
 2. $1.90 Book Page Holder: Just slot your finger in the hole and it will hold your page for you (also works as a bookmark) Able in sea green, red or silver <img width="653" height="564" alt="image" src="https://github.com/user-attachments/assets/50a48930-e092-4024-a89c-cd8abaa949cd" />
 
-3. $3.85 Helicopter flying toy: put it together and pull to make the propeller fly off Able in sea green, red or silver https://github.com/user-attachments/assets/5cf6a051-8ea3-4ca7-b901-838a98032741
+3. $3.50 Helicopter flying toy: put it together and pull to make the propeller fly off Able in sea green, red or silver https://github.com/user-attachments/assets/5cf6a051-8ea3-4ca7-b901-838a98032741
 
 4. $2.10 Nike Jordan Shoes Keyring: Able in sea green, red or silver <img width="892" height="591" alt="image" src="https://github.com/user-attachments/assets/5b54ab29-a6b7-4349-9cce-f6f84aa63a36" />
 
 
-5. $5.60 Nike/North Face Puffy Jacket Pen/pencil Holder: <img width="858" height="483" alt="image" src="https://github.com/user-attachments/assets/6a2aef62-975f-4903-93d0-1c23cea134fe" />
+5. $5 Nike/North Face Puffy Jacket Pen/pencil Holder: <img width="858" height="483" alt="image" src="https://github.com/user-attachments/assets/6a2aef62-975f-4903-93d0-1c23cea134fe" />
 
-6. Little Cute Guy: <img width="879" height="451" alt="image" src="https://github.com/user-attachments/assets/ced938f6-5bf6-43e0-9c76-12860339df14" />
+6. $2 Little Cute Guy: <img width="879" height="451" alt="image" src="https://github.com/user-attachments/assets/ced938f6-5bf6-43e0-9c76-12860339df14" />
   
 
 
