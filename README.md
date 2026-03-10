@@ -19,6 +19,8 @@ Check my projects ↓
 
 7. $3 Infinity Cube: Able in sea green, red or silver ![2024-04-24_36d8b42f2791](https://github.com/user-attachments/assets/16068196-8a92-4fa7-a57c-3d0f4d3218a3)
 
+8. $3 Pringles hollder and lid Able in Silver or red <img width="352" height="260" alt="image" src="https://github.com/user-attachments/assets/3e68ac31-9bf3-47c5-a0c8-b96dcd9b6967" />
+ 
   
 
 
