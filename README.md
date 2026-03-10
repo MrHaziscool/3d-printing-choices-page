@@ -1,8 +1,8 @@
 Hi Harry here 👋  
 From School printing cool 3D stuff on my printer  
 
-All prints available — tell me what you want! Bring in a piece of paper of what you want or just remember it  
-Check my projects ↓ 
+All prints available —To get it printing either go to thi link and fill in this form (https://forms.gle/LmBY9gotjGmttS7d8) or just tell me what you want at school! Bring in a piece of paper of what you want or just remember it  
+Check my projects ↓ !All projects will be dilivered in the next 1-3days!
 
 1. $1.20 Slider toy: Easy and fun to play with Able in sea green, red or silver  ![171204189199096300-660bafa3](https://github.com/user-attachments/assets/87a3046c-2f88-4b4b-82b6-28735b975665)
  
