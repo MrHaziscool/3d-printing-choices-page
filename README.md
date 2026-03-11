@@ -19,8 +19,14 @@ Check my projects ↓ !All projects will be dilivered in the next 1-3days!
 8. $3 Infinity Cube: Able in sea green, red or silver ![2024-04-24_36d8b42f2791](https://github.com/user-attachments/assets/16068196-8a92-4fa7-a57c-3d0f4d3218a3)
 
 9. $3 Pringles hollder and lid: Able in Silver or red <img width="352" height="260" alt="image" src="https://github.com/user-attachments/assets/3e68ac31-9bf3-47c5-a0c8-b96dcd9b6967" />
- 
-  
+
+10. The Rock (dwayne johnson) croc charm: <img width="623" height="561" alt="Screenshot 2026-03-11 184344" src="https://github.com/user-attachments/assets/d42195c2-c65b-4df5-8148-c30cfe20de3c" />
+
+11. Happy Jim face croc charm: <img width="343" height="263" alt="Screenshot 2026-03-11 184255" src="https://github.com/user-attachments/assets/55815ebf-6e3b-4b00-9340-d68a9955decc" />
+
+
+12. Orton's Fav I eat rock croc charm: <img width="206" height="193" alt="image" src="https://github.com/user-attachments/assets/bca38f68-c184-4cc3-a71f-ff3041864a54" />
+
 
 
 
