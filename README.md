@@ -16,9 +16,12 @@ Check my projects ↓ !All projects will be dilivered in the next 1-3days!
 
 7. $2 Little Cute Guy: Able in sea green, red or silver <img width="879" height="451" alt="image" src="https://github.com/user-attachments/assets/ced938f6-5bf6-43e0-9c76-12860339df14" />
 
-8. Infinity Cubes: Able in sea green, red or silver
+8. Infinity Cubes: Able in sea green, red or silver ↓
+
 $2 No texture <img width="316" height="178" alt="image" src="https://github.com/user-attachments/assets/59226a2a-ea71-4904-a19c-8a6272316f6a" />
+
 $2.50 HoneyComb <img width="742" height="508" alt="Screenshot 2026-03-13 162701" src="https://github.com/user-attachments/assets/a4531860-fa2a-4a62-bfc7-5b919a3e6b6e" />
+
 $2.47 Knurled <img width="668" height="472" alt="Screenshot 2026-03-13 162735" src="https://github.com/user-attachments/assets/3f977b2d-4fc5-4ef5-87d5-7b43639998ad" />
 
 9. $3 Pringles hollder and lid: Able in Silver or red <img width="352" height="260" alt="image" src="https://github.com/user-attachments/assets/3e68ac31-9bf3-47c5-a0c8-b96dcd9b6967" />
