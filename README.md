@@ -16,17 +16,20 @@ Check my projects ↓ !All projects will be dilivered in the next 1-3days!
 
 7. $2 Little Cute Guy: Able in sea green, red or silver <img width="879" height="451" alt="image" src="https://github.com/user-attachments/assets/ced938f6-5bf6-43e0-9c76-12860339df14" />
 
-8. $3 Infinity Cube: Able in sea green, red or silver ![2024-04-24_36d8b42f2791](https://github.com/user-attachments/assets/16068196-8a92-4fa7-a57c-3d0f4d3218a3)
+8. Infinity Cubes: Able in sea green, red or silver
+$2 No texture <img width="316" height="178" alt="image" src="https://github.com/user-attachments/assets/59226a2a-ea71-4904-a19c-8a6272316f6a" />
+$2.50 HoneyComb <img width="742" height="508" alt="Screenshot 2026-03-13 162701" src="https://github.com/user-attachments/assets/a4531860-fa2a-4a62-bfc7-5b919a3e6b6e" />
+$2.47 Knurled <img width="668" height="472" alt="Screenshot 2026-03-13 162735" src="https://github.com/user-attachments/assets/3f977b2d-4fc5-4ef5-87d5-7b43639998ad" />
 
 9. $3 Pringles hollder and lid: Able in Silver or red <img width="352" height="260" alt="image" src="https://github.com/user-attachments/assets/3e68ac31-9bf3-47c5-a0c8-b96dcd9b6967" />
 
-10. The Rock (dwayne johnson) croc charm: <img width="623" height="561" alt="Screenshot 2026-03-11 184344" src="https://github.com/user-attachments/assets/d42195c2-c65b-4df5-8148-c30cfe20de3c" />
+10. $1.10 The Rock (dwayne johnson) croc charm: <img width="623" height="561" alt="Screenshot 2026-03-11 184344" src="https://github.com/user-attachments/assets/d42195c2-c65b-4df5-8148-c30cfe20de3c" />
 
-11. Happy Jim face croc charm: <img width="343" height="263" alt="Screenshot 2026-03-11 184255" src="https://github.com/user-attachments/assets/55815ebf-6e3b-4b00-9340-d68a9955decc" />
+11. $1.20 Happy Jim face croc charm: <img width="343" height="263" alt="Screenshot 2026-03-11 184255" src="https://github.com/user-attachments/assets/55815ebf-6e3b-4b00-9340-d68a9955decc" />
 
+12. $1 Orton's Fav I eat rock croc charm: <img width="206" height="193" alt="image" src="https://github.com/user-attachments/assets/bca38f68-c184-4cc3-a71f-ff3041864a54" />
 
-12. Orton's Fav I eat rock croc charm: <img width="206" height="193" alt="image" src="https://github.com/user-attachments/assets/bca38f68-c184-4cc3-a71f-ff3041864a54" />
-
-
+13. $0.97 Happy face: <img width="236" height="121" alt="image" src="https://github.com/user-attachments/assets/89a86198-8504-4859-b069-72513c8b4825" />
+ 
 
 
