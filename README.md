@@ -8,7 +8,7 @@ Check my projects ↓ !All projects will be dilivered in the next 1-3days!
  
 2. $1.90 Book Page Holder: Just slot your finger in the hole and it will hold your page for you (also works as a bookmark) Able in sea green, red or silver <img width="653" height="564" alt="image" src="https://github.com/user-attachments/assets/50a48930-e092-4024-a89c-cd8abaa949cd" />
 
-4. $3.50 Helicopter flying toy: put it together and pull to make the propeller fly off Able in sea green, red or silver ![171204189199096300-660bafa3](https://github.com/user-attachments/assets/ffdd480c-7ad6-40ec-b4a4-91356328f653)
+4. $2.25 Flying Spining Copters flying toy: It’s a small hand-powered toy that spins a propeller by rubbing the stick between your hands. Able in sea green, red or silver 
 
 5. $2.10 Nike Jordan Shoes Keyring: Able in sea green, red or silver <img width="892" height="591" alt="560089038-5b54ab29-a6b7-4349-9cce-f6f84aa63a36" src="https://github.com/user-attachments/assets/148eaa0e-e099-4cc0-ae6d-c091536b1082" />
 
